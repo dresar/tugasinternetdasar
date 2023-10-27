@@ -1,2 +1,0 @@
-# tugasinternetdasar
-tugas
